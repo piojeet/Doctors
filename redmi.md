@@ -1,0 +1,1 @@
+No one should copy this code, it is copyright code//
